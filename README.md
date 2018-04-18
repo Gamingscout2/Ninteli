@@ -1,0 +1,2 @@
+# Ninteli
+Private gaming company.
